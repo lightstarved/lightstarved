@@ -6,6 +6,9 @@
   ▌│█║▌║▌║█ █ █ ▌│. 
 ㅤㅤㅤㅤ▌│█║▌║▌║▌│█║█████.
   <p align="center">
+        <img src="https://komarev.com/ghpvc/?username=lightstarved&label=█│ㅤㅤ&color=000000&style=italic"ㅤㅤㅤㅤ
+"" /> </p>
+<p align="center">
 Zkhuh lv wkh dqjhov L nqhz lq wkh Eleoh?
      <p align="center">
 L khdug, L fdq'w vhh lw, grq'w sudb iru vxuylydo

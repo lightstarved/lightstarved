@@ -1,4 +1,4 @@
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ![dat6jbl-6ff49d5c-764a-41a9-b5ee-b8efab5b6c71](https://github.com/user-attachments/assets/10f45b3b-9e4e-40d6-8276-e389073e4c97)
+
 
   ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ*<ins>Don't close off your soul to strangers' help.</ins>*
   
@@ -10,13 +10,21 @@
 
 
 <p align="center">
-  ▌│█║▌║▌║█ █ █ ▌│. 
-ㅤㅤㅤㅤ▌│█║▌║▌║▌│█║█████.
+  ▌│█║▌║▌║█ █ █ ▌│ ✚ ✚ ✚ㅤ▌│█║▌║▌║▌│█║█████.
   <p align="center">
         <img src="https://komarev.com/ghpvc/?username=lightstarved&label=healedㅤㅤ&color=2c3d13&style=bold"ㅤㅤㅤㅤ
 "" /> </p>
 <p align="center">
   
-ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ║ **c+h** <ins>freely</ins>    ║   *<ins>mostly offtab</ins>* <sup>slow resp + w2i</sup> ║ *dncover , thanks.* ║
-ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![b46da5efdd96c00aa69645f2e29f43d5](https://github.com/user-attachments/assets/7e4c1643-c2ed-405b-9645-a7a4aa0b0b0e) 
+ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𖤓 **c+h** <ins>freely</ins>   𖤓   *<ins>mostly offtab</ins>* <sup>slow resp + w2i</sup> 𖤓 *dncover , thanks.* 𖤓
+<p align="center">
+  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾</b></a> 
+  <p align="center">
+  ♙♖♘♗♕♔
+    
+ㅤㅤㅤㅤㅤㅤㅤ![Fx_cutscene_beast_episode07_12_sm](https://github.com/user-attachments/assets/b74c42dc-988a-463a-916a-cde53da23942)
 
+<p align="center">
+  𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃
+  
+ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![b46da5efdd96c00aa69645f2e29f43d5](https://github.com/user-attachments/assets/7e4c1643-c2ed-405b-9645-a7a4aa0b0b0e) 

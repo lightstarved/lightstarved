@@ -1,6 +1,7 @@
 <p align="center">
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зображення_viber_2026-03-10_11-27-54-388](https://github.com/user-attachments/assets/0e09e103-a8fc-435d-b04d-86cec592f282)
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![зображення_viber_2026-03-10_11-40-08-030](https://github.com/user-attachments/assets/2e6e64c2-13ea-401b-abd8-6f29cd4ae665)
+
 
 
 <p align="center">

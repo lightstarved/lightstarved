@@ -28,5 +28,7 @@
 
 <p align="center">
   $\color{#013e8c}{\textsf{𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃 𝄃𝄃𝄂𝄂𝄀𝄁𝄃𝄂𝄂𝄃}}$
+
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![ㅤㅤㅤㅤ profile views](https://u8views.com/api/v1/github/profiles/238828240/views/day-week-month-total-count.svg)](https://u8views.com/github/lightstarved)
   
-ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![b46da5efdd96c00aa69645f2e29f43d5](https://github.com/user-attachments/assets/7e4c1643-c2ed-405b-9645-a7a4aa0b0b0e) 
+ㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![b46da5efdd96c00aa69645f2e29f43d5](https://github.com/user-attachments/assets/7e4c1643-c2ed-405b-9645-a7a4aa0b0b0e)

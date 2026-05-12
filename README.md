@@ -3,12 +3,12 @@
     </p>
 
   <p align="center">
-    <img width="500" height="500" alt="завантаження" src="https://github.com/user-attachments/assets/d4dc0689-5872-4873-967b-aad5c5711939" />
+<img width="500" height="500" alt="зображення_viber_2026-05-12_14-57-22-893" src="https://github.com/user-attachments/assets/0f7c0f0a-197b-4891-88e8-d619c3b45ee0" />
     </p>
 
 
   <p align="center">
-        <img src="https://komarev.com/ghpvc/?username=lightstarved&label=🫆ㅤ&color=e34255&style=bold"
+        <img src="https://komarev.com/ghpvc/?username=lightstarved&label=🫆ㅤ&color=24a388&style=bold"
           </p>
 
   

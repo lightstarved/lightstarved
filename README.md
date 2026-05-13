@@ -1,12 +1,16 @@
   <p align="center">
-    $\color{#2220a1}{\textsf{c+h whenever u see me bruh}}$
+    $\color{#2220a1}{\textsf{stefan, steffik , rise  - thats a meeeeee , guys im not a girl pls stop assuming that ::crying emoji::}}$
     </p>
 
   <p align="center">
 <img width="500" height="500" alt="зображення_viber_2026-05-12_14-57-22-893" src="https://github.com/user-attachments/assets/0f7c0f0a-197b-4891-88e8-d619c3b45ee0" />
     </p>
 
+  <p align="center">
+    $\color{#2220a1}{\textsf{myy art yeah!!! its so lame ik}}$
+    </p>
 
+    
   <p align="center">
         <img src="https://komarev.com/ghpvc/?username=lightstarved&label=🫆ㅤ&color=24a388&style=bold"
           </p>

@@ -1,5 +1,5 @@
   <p align="center">
-    $\color{#2220a1}{\textsf{stefan, steffik , rise  - thats a meeeeee , guys im not a girl pls stop assuming that ::crying emoji::}}$
+    $\color{#2220a1}{\textsf{ guys im not a girl pls stop assuming that ::crying emoji::}}$
     </p>
 
   <p align="center">

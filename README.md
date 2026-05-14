@@ -1,22 +1,21 @@
   <p align="center">
-    $\color{#2220a1}{\textsf{ guys im not a girl pls stop assuming that ::crying emoji::}}$
+    $\color{#316ac4}{\textsf{ guys im not a girl pls stop assuming that ::crying emoji::}}$
     </p>
 
   <p align="center">
-<img width="500" height="500" alt="зображення_viber_2026-05-12_14-57-22-893" src="https://github.com/user-attachments/assets/0f7c0f0a-197b-4891-88e8-d619c3b45ee0" />
+<img src="https://github.com/user-attachments/assets/44c953fa-6896-4129-ae58-5f2c28fe8d0e" />
     </p>
 
   <p align="center">
-    $\color{#2220a1}{\textsf{myy art yeah!!! its so lame ik}}$
+    $\color{#2220a1}{\textsf{*𝑌𝑜𝑢 𝑤𝑖𝑙𝑙 𝑛𝑒𝑣𝑒𝑟 𝑢𝑛𝑑𝑒𝑟𝑠𝑡𝑎𝑛𝑑 𝑚𝑒...*}}$
     </p>
 
     
   <p align="center">
-        <img src="https://komarev.com/ghpvc/?username=lightstarved&label=🫆ㅤ&color=24a388&style=bold"
+        <img src="https://komarev.com/ghpvc/?username=lightstarved&label=𓂁𓂄+✦˖&color=455d85&style=bold"
           </p>
 
   
 <p align="center">
-  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾</b></a> 
-  <p align="center">
+  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾</b></a>ㅤㅤㅤ
   <a href="https://guns.lol/mr.rise" target="_blank"><b>guns.lol</b></a> 

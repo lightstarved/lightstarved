@@ -20,9 +20,9 @@
 
   
 <p align="center">
-  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾</b></a>ㅤㅤㅤ
-  <a href="https://guns.lol/mr.rise" target="_blank"><b>guns.lol</b></a> 
-
+  <a href="https://riseyrise.straw.page" target="_blank"><b>𝗌𝗍𝗋𝖺𝗐𝗉𝖺𝗀𝖾</b></a>ㅤㅤ
+  <a href="https://guns.lol/mr.rise" target="_blank"><b>guns.lol</b></a>ㅤㅤ
+ <a href="https://en.pronouns.page/@rise" target="_blank"><b>prns.page</b></a>
  <p align="center">
 <img src="https://github.com/user-attachments/assets/036165e8-c6e3-432b-951c-d4f9a8cc63ad" />
 

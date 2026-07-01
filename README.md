@@ -12,8 +12,6 @@
   $\color{#991d25}{\textsf{/}}$
   $\color{#71bd72}{\textsf{him}}$
 
-
-
 <p align="center">
   <img src="https://github.com/user-attachments/assets/a72e1613-6498-4890-aa86-1e4ef673ee71" />
   <p align="center">
@@ -24,6 +22,8 @@
         <img src="https://komarev.com/ghpvc/?username=lightstarved&label=minions+full+of+wrath+𓄿&color=1a2e15&style=bold"
           </p>
 
+    
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤshotout to [@title-town](https://github.com/title-town) for putting me as ponytowns venomshank!
   <p align="center">
     <img width="200" height="200" alt="зображення_viber_2026-06-24_12-30-10-996" src="https://github.com/user-attachments/assets/e27508a2-e65d-4d81-86bb-7dba015264ee" />
   <p align="center">

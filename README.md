@@ -23,7 +23,7 @@
           </p>
 
     
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤshotout to [@title-town](https://github.com/title-town) for putting me as ponytowns venomshank!
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤshoutout to [@title-town](https://github.com/title-town) for putting me as ponytowns venomshank.
   <p align="center">
     <img width="200" height="200" alt="зображення_viber_2026-06-24_12-30-10-996" src="https://github.com/user-attachments/assets/e27508a2-e65d-4d81-86bb-7dba015264ee" />
   <p align="center">
